@@ -10,4 +10,4 @@ Garrett.Leonard79@gmail.com
 346-232-7219
 
 
-Copyright 2018 Garrett B. Leonard
+Copyright 2018 B. Leonard
